@@ -1,0 +1,1 @@
+# QRazyScan-privacy-policy
